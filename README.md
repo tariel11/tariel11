@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Tariel Arslanov 
-- 🌳 I'm 18 yo
+- 🌳 I'm 20 yo
 - 👀 I’m interested in coding, football and anime
 - 📫 How to reach me: tarielarslanov5@gmail.com
 
